@@ -22,4 +22,4 @@ Some recent projects:
 
 --🔨 Learning to woodwork
 
---🚲 Commuting on my bike
+--🚲 Biking
