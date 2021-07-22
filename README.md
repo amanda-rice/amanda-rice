@@ -18,8 +18,8 @@ Some recent projects:
 
 --🌄 Hiking
 
---🚲 Commuting on my bike
-
 --🌱 Studying native plants
 
 --🔨 Learning to woodwork
+
+--🚲 Commuting on my bike
