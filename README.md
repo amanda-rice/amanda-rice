@@ -13,13 +13,3 @@ Some recent projects:
 -- https://amanda-rice.github.io/checkpoint2/ 
 
 -- Connect with me on LinkedIn: https://www.linkedin.com/in/amanda-rice-a6413576/
-
-### Some of my favorite things...
-
---🌄 Hiking
-
---🌱 Studying native plants
-
---🔨 Learning to woodwork
-
---🚲 Biking
